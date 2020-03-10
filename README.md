@@ -1,0 +1,1 @@
+# YaziTahtasiSurukleBirak_linux
